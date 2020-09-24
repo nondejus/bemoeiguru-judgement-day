@@ -1,1 +1,0 @@
-# bemoeiguru-judgement-day
